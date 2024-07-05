@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=794EF7&random=false&width=435&lines=FORK+THIS+REPOSITORY+AND+USE+(FREE))](https://git.io/typing-svg) 
+TTTTTTT333RRII BHH3339999 KKKKK99999 BHOOSSRRR444 MMM44RRUUUUUUUUU 🤣🤣🤣🤣🤣🤣 TTTERRIII SEXYYYYY BHHENNN KKKKKIIIIII CHUTTT PPPEEEE KISS KRRUUUU TERI MM444 KKKII () ()()()()()()()
 
 ## `DECLAIMER`
 
